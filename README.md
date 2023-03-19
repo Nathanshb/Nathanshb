@@ -1,4 +1,4 @@
-# Hi there, I'm Jonathan - aka [jonathansihombing](https://www.instagram.com/nathan_shb/?hl=en) 👋
+# Hi there, I'm Jonathan - aka [jonathan sihombing](https://www.instagram.com/nathan_shb/?hl=en) 👋
 
 ## About me:
 - 🔭 I’m I am registered as a participant in MSIB ZENIUS
